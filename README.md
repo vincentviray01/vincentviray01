@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with logical reasoning!
 - 💬 Ask me about video games!
 - 📫 How to reach me: vincentviray01@gmail.com
-- ⚡ Fun fact: I reached the coveted 'Legend' rank in Hearthstone!
--->
+- ⚡ Fun fact: I reached the highest rank, 'Legend', in Hearthstone with a peak of Rank 615!
+
